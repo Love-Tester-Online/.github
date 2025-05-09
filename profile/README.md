@@ -2,6 +2,8 @@
 
 **Love Tester Unblocked** is a **funny, addictive, and romantic arcade game** where you can instantly measure the love compatibility between you and your crush. Whether you're in the mood for a little fun at school or looking to pass time with friends, this **free unblocked game** delivers laughs, surprises, and sometimes, heartbreaks — all in one click.
 
+## <a href="https://1kb.link/ZleIUd">👉 Click To Play Love Tester Unblocked Games 👈</a>
+
 ---
 
 ### ❤️ What is Love Tester?
